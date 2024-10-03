@@ -1,0 +1,1 @@
+# Script-Temperatura-Fivem-Criativo-2024
